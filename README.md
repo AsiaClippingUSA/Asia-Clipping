@@ -3,21 +3,39 @@ Hi, I’m Wahedul Mridha, Professional Adobe Photoshop Designer from Bangladesh.
 
 My Services: 
 
-Clipping Path 
+Clipping Path
+
 Background Removal 
+
 Image Masking 
+
 Photo Retouch
+
 Color Correction
+
 Neck Joint/ Ghost Mannequin Remove
+
 Photo Manipulation
+
 Photo Restoration
+
 Model Retouch
+
 Cloths and Shoes Photo Editing
+
 Reflections & Shadows Creation
+
+
 I Also Provide:
+
 Commercial Photo Editing
+
 Jewelry Photo Retouch
+
 Product Photo Editing
+
 Wedding Photo Editing
+
 Real Estate Photo Editing 
+
 New born Baby Photo Retouch
